@@ -1,4 +1,4 @@
-# 🚀 CODEXINTERN – July 2025
+# 🚀 CODEXINTERN
 
 ## ✅ Tasks Completed 
 
